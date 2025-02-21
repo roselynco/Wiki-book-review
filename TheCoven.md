@@ -17,12 +17,13 @@
 
 ## **My Rating**:
  ⭐⭐⭐⭐/ ⭐⭐⭐⭐⭐
+ 
 
 ```javascript
  Personal Thoughts 💭
-
- really enjoyed The Coven Series, especially the way it blends paranormal elements with character-driven drama. The world-building is rich and immersive, with a unique take on witches and magic. Trisha Wolfe does a fantastic job of creating a world that feels both familiar and new, making the fantasy elements feel grounded in reality. The characters, particularly the protagonist, are complex and relatable, and their growth throughout the series is well-developed. The romance adds an intriguing layer to the story, but it doesn’t overshadow the darker, more intense moments. The pacing keeps the story exciting, and there’s enough mystery and intrigue to keep you hooked. However, there were times when the narrative felt a bit predictable, but overall, it was an enjoyable read that kept me turning pages.
 ```
+ really enjoyed The Coven Series, especially the way it blends paranormal elements with character-driven drama. The world-building is rich and immersive, with a unique take on witches and magic. Trisha Wolfe does a fantastic job of creating a world that feels both familiar and new, making the fantasy elements feel grounded in reality. The characters, particularly the protagonist, are complex and relatable, and their growth throughout the series is well-developed. The romance adds an intriguing layer to the story, but it doesn’t overshadow the darker, more intense moments. The pacing keeps the story exciting, and there’s enough mystery and intrigue to keep you hooked. However, there were times when the narrative felt a bit predictable, but overall, it was an enjoyable read that kept me turning pages.
+
 ## Perfect Targetted Audience🔥:
 * Fans of paranormal fiction and witch stories with a romantic twist.
 * Young Adult readers who enjoy coming-of-age stories mixed with fantasy elements.

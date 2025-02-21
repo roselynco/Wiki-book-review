@@ -3,4 +3,4 @@
 #  6 Great Book Reccomendations For You!! 
 
 # Books:
-- Binding 13 (Binding13.md)
+- Binding 13 (Graham-Effect.md)

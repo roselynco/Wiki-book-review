@@ -17,9 +17,9 @@
 
 ```javascript
 Personal Thoughts💭:
-
-I absolutely loved this book! Taylor Jenkins Reid masterfully blends rich character development with a deep exploration of complex emotions. Evelyn Hugo is a multi-dimensional character—strong, vulnerable, and fiercely determined. The way Reid unveils Evelyns story one layer at a time keeps you hooked, making it impossible to put the book down. What I found most impactful was the exploration of the price of fame and the sacrifices people make for love and success. The unexpected twists and revelations in the story were so well done, and Moniques journey added an intriguing layer to the narrative. While the book touches on heavy topics, it also brings a sense of empowerment, especially for women navigating their careers and relationships. It’s a beautifully written story that leaves you thinking long after the last page.
 ```
+I absolutely loved this book! Taylor Jenkins Reid masterfully blends rich character development with a deep exploration of complex emotions. Evelyn Hugo is a multi-dimensional character—strong, vulnerable, and fiercely determined. The way Reid unveils Evelyns story one layer at a time keeps you hooked, making it impossible to put the book down. What I found most impactful was the exploration of the price of fame and the sacrifices people make for love and success. The unexpected twists and revelations in the story were so well done, and Moniques journey added an intriguing layer to the narrative. While the book touches on heavy topics, it also brings a sense of empowerment, especially for women navigating their careers and relationships. It’s a beautifully written story that leaves you thinking long after the last page.
+
 
 ## Perfect Targetted Audience🔥:
 * Historical fiction with a Hollywood setting.
